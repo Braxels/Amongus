@@ -1,0 +1,2 @@
+# Amongus
+Amongus is sus
